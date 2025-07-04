@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/8114787596812d3d9fa0a4f8ead6f85b/c60f4fc22e776bad-aa/s1280x1920/03b2f8334cd400874f5c83790bcdb2acc4b8effb.pnj)
+![](https://64.media.tumblr.com/668a136e56d8f31db62ce69112dc1ffd/d58bd2972401ca99-74/s2048x3072/c40fb6406e140fdef477261d0f7f644bae54ffde.jpg)
 
 ㅤ![](https://komarev.com/ghpvc/?username=ughsybau&color=grey&style=plastic) ㅤㅤㅤ
 
